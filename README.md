@@ -7,4 +7,4 @@ A bit about me ;)
 - 📫 How to reach me: <a href="https://www.linkedin.com/in/mykola-biliayev-47633a15a/">LinkedIn</a>, biliaienvk@gmail.com
 
 
- Looking  forward to hearing about your interesting project, and coloborating on them !)
+You have interesting project in mind - message me.
